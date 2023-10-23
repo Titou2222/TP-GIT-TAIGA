@@ -1,2 +1,2 @@
 **Léo BERNARD**
-**Titouan BELIER**
+**GM Titouan BELIER**
